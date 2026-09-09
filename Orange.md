@@ -1,1 +1,1 @@
-# Orange is one of the Leading companies in the telecom Field in the world. 
+# Orange is one of the leading telecommunications companies in the world.
